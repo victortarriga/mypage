@@ -1,1 +1,1 @@
-Minha pagina de Apresentação, sejá muito bem vindo!
+Minha página de apresentação, sejá muito bem vindo!
